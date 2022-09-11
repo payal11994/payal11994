@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @payal11994
-- 👀 I’m interested in ...
+- 👀 I’m interested in learning new thing
 - 🌱 I’m currently in masters of information system
 - 💞️ I’m looking for intenship
 - 📫 How to reach me on my email payalbhalani.11@gmail.com
